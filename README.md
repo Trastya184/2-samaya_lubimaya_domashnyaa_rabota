@@ -1,6 +1,11 @@
 # samaya_lubimaya_domashnyaa_rabota
-* Cras a sapien non nisl gravida laoreet. Morbi in cursus est. Cras ornare velit ac ullamcorper rhoncus. Quisque ultrices mi ut odio consectetur, at imperdiet lectus rhoncus. Sed at adipiscing nibh. Integer ultrices enim nisi, condimentum suscipit metus varius vitae. Nam pulvinar odio eu odio consequat venenatis. Quisque ultrices mi ut odio consectetur, at imperdiet lectus rhoncus. Morbi in cursus est. Cras a sapien non nisl gravida laoreet. 
-* In ac sapien turpis. Praesent non lectus vitae libero mattis imperdiet nec sit amet enim. Interdum et malesuada fames ac ante ipsum primis in faucibus. Curabitur eu lacus at lacus sagittis condimentum. Morbi blandit neque risus, id lacinia dolor dignissim quis. Morbi blandit neque risus, id lacinia dolor dignissim quis. Pellentesque pellentesque eget ipsum ut elementum. Pellentesque venenatis felis et mollis luctus. Sed posuere vulputate rutrum. Nunc at turpis massa. 
-* Nunc at turpis massa. Praesent non lectus vitae libero mattis imperdiet nec sit amet enim. Morbi blandit neque risus, id lacinia dolor dignissim quis. Aliquam sed consectetur massa. Phasellus ornare tellus orci, sed ornare diam condimentum tristique. Praesent non lectus vitae libero mattis imperdiet nec sit amet enim. Proin aliquam nunc felis, non eleifend sem condimentum quis. Sed posuere vulputate rutrum. Aenean sed est tristique, congue dolor ut, facilisis risus. Nunc at turpis massa. 
+## Дайте валерьяночки
+### ваббалабадабдаб
+*я пишу это в полночь перед парой*
+* я очень хочу свалить из универа
+* хочу учиться в италии и быть композитором
+* а меня засунули на филфак
 
-https://sgeneri.ru/text-generator
+[Хотите сгенерить рыбу, вам сюда!] (https://libraryofbabel.info/)
+#### хармсовские вставки
+! [Очень много кирпичей валяется на улицах] (https://thumbs.dreamstime.com/z/%D1%81%D0%B5%D1%80%D0%B0%D1%8F-%D0%BE%D1%80%D0%BE%D0%B3%D0%B0-%D1%83-%D0%B8%D1%86%D1%8B-%D0%BA%D0%B0%D0%BC%D0%BD%D1%8F-%D0%BA%D0%B8%D1%80%D0%BF%D0%B8%D1%87%D0%B0-r-54640044.jpg)
